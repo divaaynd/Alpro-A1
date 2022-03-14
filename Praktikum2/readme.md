@@ -1,1 +1,1 @@
-Diva Ayunda Najwina - 24060121140101
+Diva Ayunda Najwina - 24060121140101 - Praktikum 2
